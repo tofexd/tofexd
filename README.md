@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tofexd
+- 👀 I’m interested in games and anime
+- 🌱 I’m currently learning page lay out
+- 💞️ I’m looking for fun nad lern
